@@ -1,0 +1,1 @@
+# http-gamejigix.induk.ac.kr-shop69-main.php
